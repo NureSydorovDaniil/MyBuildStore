@@ -1,1 +1,1 @@
-Посилання на відеозвіт: https://youtu.be/COuJ44MBifE
+Посилання на відеозвіт з 1ЛБ: https://youtu.be/COuJ44MBifE
